@@ -1,1 +1,1 @@
-# ICT-Internship-Project-Report-GROUP-9
+# ICT-INTERNSHIP-PROJECT-REPORT-GROUP 9
